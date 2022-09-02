@@ -5,8 +5,6 @@
 - 📫 How to reach me ...
 - 💻 Iam New in Develping Sites! ...
 
-<!---
-VShop-Vision6852/VShop-Vision6852 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-
+       ❗My owne Discord❗
+  https://discord.gg/azB5j4jzXj
+        ❗Soon Giveaway❗
